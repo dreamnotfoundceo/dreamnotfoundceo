@@ -27,4 +27,4 @@
 
  <h5 align="center"> ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨ </h5>
   
-<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, etc** </h5>
+<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, people who think alterhumans are pretending to be systems** </h5>
