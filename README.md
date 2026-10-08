@@ -1,4 +1,4 @@
-<h1 align="center">![](https://files.catbox.moe/w5bx7f.png)</h1>
+![](https://files.catbox.moe/w5bx7f.png)
 <h1 align="center">" Brothers hands, this time its in brothers hands "</h1>
 
 ![](https://files.catbox.moe/3wvtbz.png)
