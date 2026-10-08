@@ -27,7 +27,7 @@
 
  <h5 align="center"> ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨ </h5>
   
-<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, people who think alterhumans are pretending to be systems, c!dream and john doe doubles i am not comfortable interacting with people who think theyre me.** </h5>
+<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, people who think alterhumans are pretending to be systems, and kin doubles i am not comfortable interacting with people who think theyre me.** </h5>
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
