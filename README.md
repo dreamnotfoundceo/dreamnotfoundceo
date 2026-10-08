@@ -3,7 +3,7 @@
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
- <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’**s** เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
+ <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’𝒔 เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
   
 <h5 align="center">𓐇 my prns ⦂ `they` `he` ᧆ ׁ⑅ </h5>
 
