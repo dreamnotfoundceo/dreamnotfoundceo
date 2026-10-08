@@ -3,29 +3,28 @@
 
 divider
 
-_ _
-  ᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’**s** เ𐓣𝕥ɾ𐐫 ੭e𓈒
+ <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’**s** เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
   
--# _ _   𓐇 __my__ *prns* ⦂ `they` `he` ᧆ ׁ⑅
+<h5 align="center">𓐇 my prns ⦂ `they` `he` ᧆ ׁ⑅ </h5>
 
-  𓊈☁️𓊉       ͟NB male ݂     **l**mon**d**sex**ual** ◞
+<h5 align="center">  𓊈☁️𓊉       ͟NB male ݂     almondsexual ◞</h5>
 
   divider
 
   
--# _ _  𓈈 ྀི    **fiction**kin  *god*kin  ೃ࿔
+<h5 align="center">𓈈 ྀི    fictionkin , godkin  ೃ࿔ </h5>
 
-  샘・´ｪ｀･） աh͟𑄜 เs **Dream**  ?
+<h5 align="center">  샘・´ｪ｀･） աh͟𑄜 เs Dream  ? </h5>
   
--# _ _ ㅤノ  ⑅ i am the best. i am great at pretty much everything i do.
+<h5 align="center">ㅤノ  ⑅ i am the best. i am great at pretty much everything i do. </h5>
 
 divider
 
 
-   ֯⑅⃝ ゛💚   ℓเk͟𝗲s  ꒱꒱
+   ֯<h5 align="center">⑅⃝ ゛💚   ℓเk͟𝗲s  ꒱꒱ </h5>
    
--# _ _ ㅤᘛ  ᥤforsaken, dsmp, bfdi, roblox, and more.
+<h5 align="center"> _ ㅤᘛ  ᥤforsaken, dsmp, bfdi, roblox, and more. </h5>
 
-  ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨
+ <h5 align="center"> ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨ </h5>
   
--# _ _ ㅤ╬═   **₊ proship, weirdos in general, etc**
+<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, etc** </h5>
