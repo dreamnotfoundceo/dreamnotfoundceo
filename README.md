@@ -1,7 +1,7 @@
 ![](https://files.catbox.moe/w5bx7f.png)
 #  " Brothers hands, this time its in brothers hands "
 
-divider
+![](https://files.catbox.moe/nycrou.png)
 
  <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’**s** เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
   
@@ -9,7 +9,7 @@ divider
 
 <h5 align="center">  𓊈☁️𓊉       ͟NB male ݂     almondsexual ◞</h5>
 
-  divider
+![](https://files.catbox.moe/nycrou.png)
 
   
 <h5 align="center">𓈈 ྀི    fictionkin , godkin  ೃ࿔ </h5>
@@ -18,7 +18,7 @@ divider
   
 <h5 align="center">ㅤノ  ⑅ i am the best. i am great at pretty much everything i do. </h5>
 
-divider
+![](https://files.catbox.moe/nycrou.png)
 
 
    ֯<h5 align="center">⑅⃝ ゛💚   ℓเk͟𝗲s  ꒱꒱ </h5>
