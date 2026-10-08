@@ -16,7 +16,7 @@
 
 <h5 align="center">  샘・´ｪ｀･） աh͟𑄜 เs Dream  ? </h5>
   
-<h5 align="center">ㅤノ  ⑅ i am the best. i am great at pretty much everything i do. </h5>
+<h5 align="center">ㅤノ  ⑅ i am the best. i am great at pretty much everything i do. i am the COOLEST EVER</h5>
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
