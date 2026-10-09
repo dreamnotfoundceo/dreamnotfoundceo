@@ -23,7 +23,7 @@
 
    ֯<h5 align="center">⑅⃝ ゛💚   ℓเk͟𝗲s  ꒱꒱ </h5>
    
-<h5 align="center"> _ ㅤᘛ  ᥤforsaken, dsmp, bfdi, roblox, and more. </h5>
+<h5 align="center"> _ ㅤᘛ  ᥤforsaken (14 ms4s in game), dsmp, bfdi, roblox, and more. </h5>
 
  <h5 align="center"> ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨ </h5>
   
