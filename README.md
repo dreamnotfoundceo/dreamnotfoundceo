@@ -27,7 +27,7 @@
 
  <h5 align="center"> ✿ຽ ˚ ． ძเ𝘀ℓi͟k𝗲ຣ  e𓏼੨ </h5>
   
-<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, people who think alterhumans are pretending to be systems, and kin doubles i am not comfortable interacting with people who think theyre me, and people that think you have to regret things you did in a past life cause i dont.** </h5>
+<h5 align="center"> -# _ _ ㅤ╬═   **₊ proship, weirdos in general, people who think alterhumans are pretending to be systems, kin doubles cause i am not comfortable interacting with people who think theyre me, and people that think you have to regret things you did in a past life cause i dont.** </h5>
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
