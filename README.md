@@ -3,7 +3,7 @@
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
- <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀DREAM  ’𝒔 เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
+ <h3 align="center">᱖ ྀི  ݂  ♡۫   ⠀WIL / DREAM  ’𝒔 เ𐓣𝕥ɾ𐐫 ੭e𓈒</h3>
   
 <h5 align="center">𓐇 my prns ⦂ `they` `he` ᧆ ׁ⑅ </h5>
 
@@ -16,7 +16,7 @@
 
 <h5 align="center">  샘・´ｪ｀･） աh͟𑄜 เs Dream  ? </h5>
   
-<h5 align="center">ㅤノ  ⑅ i am the best. i am great at pretty much everything i do. i am the COOLEST EVER</h5>
+<h5 align="center">ㅤノ  My name is Wilbur/Dream. I am a lots of characters, specifically Wilbur, Dream and more. Keep in mind I dont regret most of the things i did in my source and I'd do it again and again if I could. Doubles are fictionkins of me. I have almost NO dni besides proship and basic dni. I am also a medically recognized system and my dissociative amnesia has worsened over the past year so please be patient. We often have fictives of characters we "kin" (in parentheses cause we ARE said characters not just a kin). Thank you for reading this</h5>
 
 ![](https://files.catbox.moe/3wvtbz.png)
 
