@@ -30,3 +30,18 @@ Builderman　　﹕　 　*FORSAKEN*　　﹚　　me IRL
 . . . . . AND MORE ! Just ask .
 
 ⚬──────────✧──────────⚬  ⚬──────────✧──────────⚬  
+
+
+﹒ 𑣲　𓏼　PLEASE BMF IF YOU :   ⌣  
+
+→ Support ALL kinds of alterhumans  (Yes, I mean ALL, even "controversial" identities.)
+
+→ LIKE THE DSMP
+
+→ LIKE FORSAKEN
+
+→ ENJOY CALLING
+
+→ CAN HANDLE POTTY HUMOR
+
+→ ARE A SOURCEMATE (Kinwise or Systemwise, doesnt matter)
