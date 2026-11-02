@@ -11,7 +11,7 @@ _ _  ⠀ he ₁⠀⠀ they⠀⠀ 𐙚⠀⠀ alterhuman  ₊  **sys**
 ⚬──────────✧──────────⚬   ⚬──────────✧──────────⚬  
 
 _
-̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　***kinlist*** : 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀
+̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　***main kinlist*** : 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀
 
 (*these characters are not seperate from me, and my doubles do not exist to me*.)　⠀｡⠀⠀
 
