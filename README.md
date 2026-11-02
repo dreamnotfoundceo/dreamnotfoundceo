@@ -6,7 +6,7 @@
 _ _
 _ _⠀⠀𓏏𓏏⠀⠀**nonbinaryman**⠀⠀ ╱⠀⠀ *almondsexual*
 
-_ _  ⠀ he ₁⠀⠀ they⠀⠀ 𐙚⠀⠀ alterhuman  ₊  **sys**
+_ _  ⠀ he ₁⠀⠀ they⠀⠀ 𐙚⠀⠀ alterhuman  ₊  **npd + system**
 
 ⚬──────────✧──────────⚬   ⚬──────────✧──────────⚬  
 
