@@ -1,3 +1,9 @@
+People can grow and change overtime from who they once were.
+
+*INCLUDING*...content creators that did bad things.
+
+"Bro oh my god-"
+
 
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
 
