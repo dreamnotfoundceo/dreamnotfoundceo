@@ -15,7 +15,7 @@ _
 
 (*these characters are not seperate from me, and my doubles do not exist to me*.)　⠀｡⠀⠀
 
-C!Wilbur　　੭　　*DSMP*　˙　(im also a **fictive & factive** of Wilbur)　⠀ױ　me IRL 　　ꈍ ᴗ　
+C!Wilbur　　੭　　*DSMP*　˙　(i, the system host, am also a **VERY source connected fictive & factive** of Wilbur. Treat me like source)　⠀ױ　me IRL 　　ꈍ ᴗ　
 
 Builderman　　﹕　 　*FORSAKEN*　　﹚　　me IRL
 
