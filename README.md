@@ -1,8 +1,8 @@
-**People can grow and change overtime from who they once were.**
+**people can grow and change overtime from who they once were.**
 
 *INCLUDING*...**content creators that did bad things in their past.**
 
-*"Bro oh my god-"*
+*"bro oh my god-"*
 
 
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
@@ -21,7 +21,7 @@ _
 
 (*these characters are not seperate from me, and my doubles do not exist to me*.)　⠀｡⠀⠀
 
-C!Wilbur　　੭　　*DSMP*　˙　(i, the system host, am also a **VERY source connected fictive & factive** of Wilbur. Treat me like source)　⠀ױ　me IRL 　　ꈍ ᴗ　
+C!Wilbur　　੭　　*DSMP*　˙　(i, the system host, am also a **VERY source connected fictive & factive** of Wilbur. treat me like source)　⠀ױ　me IRL 　　ꈍ ᴗ　
 
 Builderman　　﹕　 　*FORSAKEN*　　﹚　　me IRL
 
