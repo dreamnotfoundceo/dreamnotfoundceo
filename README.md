@@ -1,8 +1,8 @@
-People can grow and change overtime from who they once were.
+**People can grow and change overtime from who they once were.**
 
-*INCLUDING*...content creators that did bad things.
+*INCLUDING*...**content creators that did bad things in their past.**
 
-"Bro oh my god-"
+*"Bro oh my god-"*
 
 
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
