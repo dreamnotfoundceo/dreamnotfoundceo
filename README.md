@@ -1,6 +1,6 @@
 #betterthanyou
 
-i dont consider myself STRICTLY "wss or sss". do not ask me about it. ive heard bad about both sides, in which i acknowledge, but people can grow and change as a person overtime.
+i dont consider myself STRICTLY "wss or sss". do not ask me about it. ive heard bad about both sides, in which i acknowledge, but people can grow and change as a person overtime. dont stay stuck in the past if people are clearly improving.
 
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
 
