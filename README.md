@@ -1,5 +1,7 @@
 #betterthanyou
 
+i dont consider myself strictly "wss or sss". do not ask me about it. i have yet to do more research on all of it and even then, ive heard bad about both sides, in which i acknowledge but people can grow and change as a person overtime.
+
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
 
 ❛     ⸺     WILBUR / ASK NAMES 𓈒
