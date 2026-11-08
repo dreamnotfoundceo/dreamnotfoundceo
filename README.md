@@ -2,6 +2,8 @@
 
 i dont consider myself STRICTLY "wss or sss". do not ask me about it. ive heard bad about both sides, in which i acknowledge, but people can grow and change as a person overtime. dont stay stuck in the past if people are clearly improving. if you think people, including content creators cant change, do not interact with me. you are an immature fuck.
 
+i dont mind if someone who is strictly nwss / nsss interacts with me. i dont let things like this dictate whether i make a new friend or not. who knows, maybe you and someone else could click perfectly but the only thing holding you back from that is something like this.
+
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
 
 ❛     ⸺     WILBUR / ASK NAMES 𓈒
