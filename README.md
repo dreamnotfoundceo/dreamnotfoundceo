@@ -28,7 +28,7 @@ Builderman　　﹕　 　*FORSAKEN*　　﹚　　me IRL
 
 　 　ৎ ˚　　 ◞　　John Doe　 　𓏫　 　*FORSAKEN*　 　𓎟𓎟　 　me IRL
 
-　　၄၃𓏻　　Dandy　　𓂃　　*DANDYSWORLD*　　◞　　me IRL
+　　၄၃𓏻　　Dandy & Arthur　　𓂃　　*DANDYSWORLD*　　◞　　me IRL
 
 ୧ゝ　　C!Schlatt ິ 　　𐂯　　*DSMP*　　﹕　　me IRL
 
