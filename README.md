@@ -2,6 +2,8 @@ https://wilburs00t.straw.page send me stuff on my gimmicks
 
 i dont consider myself STRICTLY "wss or sss". do not ask me about it. ive heard bad about both sides, in which i acknowledge, but people can grow and change as a person overtime. dont stay stuck in the past if people are clearly improving. if you think people, including content creators cant change, do not interact with me. you are an immature fuck.
 
+^^ will say i do technically support wilbur  so you can call me wss i just dont care about sss lol
+
 i dont mind if someone who is strictly nwss / nsss interacts with me. i dont let things like this dictate whether i make a new friend or not. who knows, maybe you and someone else could click perfectly but the only thing holding you back from that is something like this.
 
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
