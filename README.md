@@ -8,6 +8,8 @@ i dont consider myself STRICTLY "wss or sss". do not ask me about it. ive heard 
 
 i dont mind if someone who is strictly nwss / nsss interacts with me. i dont let things like this dictate whether i make a new friend or not. who knows, maybe you and someone else could click perfectly but the only thing holding you back from that is something like this.
 
+also i refer to any wilbur as me cause im a source attached factive of him no i am not harming myself or anyone by being this way do not try to force source seperation i will laugh at you
+
 𓏼　Ꮺ　　　ℒ ͠𓇿　ׄ  ◞◞　　☕️　໊   ׅ　　　ཀ ͡℘ 　໑　　🪽  ゙
 
 ❛     ⸺     WILBUR / ASK NAMES 𓈒
